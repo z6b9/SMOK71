@@ -33,3 +33,7 @@ https://www.dropbox.com/scl/fi/7u4s2ns21lulxfanu6xtd/landsg.zip?rlkey=hu8i3yudol
 فتك👇🏻
 
 https://www.dropbox.com/scl/fi/3cpiiybp34kccvinqrugy/kn0z_y61.rar?rlkey=twdw9hbyjkcyyk61hnsupkqs4&st=r53llhyk&dl=1
+
+فورد تورس 25👇🏻
+
+https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7kz7tul5fec1kw1ir83z6zyj7&dl=1
