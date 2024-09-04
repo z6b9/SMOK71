@@ -37,3 +37,7 @@ https://www.dropbox.com/scl/fi/3cpiiybp34kccvinqrugy/kn0z_y61.rar?rlkey=twdw9hby
 فورد تورس 25👇🏻
 
 https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7kz7tul5fec1kw1ir83z6zyj7&dl=1
+
+اكسنت24👇�
+
+�https://www.dropbox.com/scl/fi/o70xgu0n10dfs0nisujy8/Hyundai-Accent-2024-BETA-V1.0-1.zip?rlkey=9st7p9rcm7c5xk27wyzxs7oui&st=khabv9bg&dl=1
