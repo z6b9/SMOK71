@@ -41,3 +41,7 @@ https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7k
 اكسنت24👇�
 
 �https://www.dropbox.com/scl/fi/o70xgu0n10dfs0nisujy8/Hyundai-Accent-2024-BETA-V1.0-1.zip?rlkey=9st7p9rcm7c5xk27wyzxs7oui&st=khabv9bg&dl=1
+
+ماب الكويت اسيتو كورسا
+
+https://www.dropbox.com/scl/fi/762cq1qg9ftd6zmpovyp0/Ali_Kuwait_City.zip?rlkey=eoxseac014luyna7d0dp5pt8p&st=w1mzesh9&dl=1
