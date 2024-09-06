@@ -45,3 +45,8 @@ https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7k
 ماب الكويت اسيتو كورسا
 
 https://www.dropbox.com/scl/fi/762cq1qg9ftd6zmpovyp0/Ali_Kuwait_City.zip?rlkey=eoxseac014luyna7d0dp5pt8p&st=w1mzesh9&dl=1
+
+اكسنت2010
+
+
+https://www.dropbox.com/scl/fi/i3d8p2n46a7cionquiyb3/Hyundai_Accent_2010_KHwylD.rar?rlkey=h436do4816xi1tur6fwjme984&dl=1
