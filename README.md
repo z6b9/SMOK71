@@ -42,15 +42,19 @@ https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7k
 
 �https://www.dropbox.com/scl/fi/o70xgu0n10dfs0nisujy8/Hyundai-Accent-2024-BETA-V1.0-1.zip?rlkey=9st7p9rcm7c5xk27wyzxs7oui&st=khabv9bg&dl=1
 
-ماب الكويت اسيتو كورسا
+ماب الكويت اسيتو كورسا👇🏻
 
 https://www.dropbox.com/scl/fi/762cq1qg9ftd6zmpovyp0/Ali_Kuwait_City.zip?rlkey=eoxseac014luyna7d0dp5pt8p&st=w1mzesh9&dl=1
 
-اكسنت2010
+اكسنت2010👇🏻
 
 
 https://www.dropbox.com/scl/fi/i3d8p2n46a7cionquiyb3/Hyundai_Accent_2010_KHwylD.rar?rlkey=h436do4816xi1tur6fwjme984&dl=1
 
-برادو2009
+برادو2009👇🏻
 
 https://www.dropbox.com/scl/fi/msjpa8ow5q2py39ixrva6/Prado_2009_KHwylD.rar?rlkey=ss9kgqmax3w5cs9lkdi6vnjt3&dl=1
+
+map👇🏻
+
+https://www.dropbox.com/scl/fi/22sysddn7khq1dhy09a13/m7_town3.zip?rlkey=3xe124x48ek1knyr47etpn3i8&dl=1
